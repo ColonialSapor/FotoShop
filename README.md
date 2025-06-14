@@ -10,4 +10,4 @@ If it does not work after this, try to run other softwares like Illustrator, or 
 
 If it does not with after these previous attempts, please contact me and I will be more than happy to help. 
 
-Contact - @madisenperez om TG
+Contact - @madisenperez on TG
